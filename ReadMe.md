@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱  3rd year Computer Science student.<br>💪🏻 High self-learning ability, highly motivated and eager to learn new things, capable of working under<br>pressure.<br>🔎 Searching for a position in software development or System Administrator to maximize my knowledge and abilities.<br>📫 fmanevich@gmail.com
+🌱  B.Sc. Computer Science Graduate.<br>💪🏻 High self-learning ability, highly motivated and eager to learn new things, capable of working under<br>pressure.<br>🔎 Searching for a position in software development or System Administrator to maximize my knowledge and abilities.<br>📫 fmanevich@gmail.com
 
 
 ## 🌐 Socials:
